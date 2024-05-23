@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @maxi-k0
+- 👀 I’m interested in computers
+- 🌱 I’m currently learning finsihing school
+- ⚡ Fun fact: i wannt to do an ironman
